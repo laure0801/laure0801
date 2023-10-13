@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **laure.reina@gmail.com**
 
-- ⚡ Fun fact **My dog is like my son**
+- ⚡ Fun fact **Mom of 2 dogs**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
